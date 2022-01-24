@@ -6,3 +6,4 @@ We want to teach people around the world about Blockchain.
 
 ## How to collaborate
 
+please get in tough with David
